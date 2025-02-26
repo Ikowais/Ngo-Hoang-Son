@@ -1,3 +1,4 @@
 Ngô Hoàng Sơn-21810310387-D17CNPM2
-![d3e0a36f-1970-4ac7-824a-f8bca602a3dc](https://github.com/user-attachments/assets/64b92954-ca8a-44ec-a7e3-f0a76b216fa1)
+![image](https://github.com/user-attachments/assets/30bcef81-69d8-4afa-9926-3076648bd66c)
+
 
